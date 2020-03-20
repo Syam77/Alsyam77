@@ -1,0 +1,2 @@
+# Alsyam77
+AKU BERADA DI DEKATMU
